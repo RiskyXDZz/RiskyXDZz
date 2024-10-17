@@ -1,3 +1,2 @@
-Saya Risky  
-Saya Suka Berenang
-saya pemula
+Hy , I'M Risky🌹
+MY HOBBIES SKYPING AND RUNNING 😀
